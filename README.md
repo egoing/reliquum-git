@@ -14,3 +14,5 @@ http://bit.ly/릴리쿰깃
 
 # 가입해주세요.
 https://github.com
+
+# 다음 주에 못 나오시면 reliquum.stage@gmail.com 로 연락 주세요. ^^
